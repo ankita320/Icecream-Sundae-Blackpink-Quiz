@@ -1,1 +1,0 @@
-# Icecream-Sundae-Blackpink-Quiz
